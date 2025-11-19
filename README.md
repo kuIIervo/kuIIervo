@@ -7,8 +7,7 @@
   
 <p align="center">
 
-w2i, always off-tab. unless u see zzz/bed/class in my name then pls sign ata to int instead ^_^
-
+w2i, always off-tab... or sign atabook i might be sleeping(likely) or outside(less likely) and unable to respond to whispers
 <p align="center">
 <a href="https://arab.org/click-to-help/palestine/">DAILY CLICK 🇵🇸</a> ⟡ <a href="https://www.last.fm/user/rex69420">LAST.FM</a> ⟡ <a href="https://rex.atabook.org/">GUESTBOOK</a>
 
