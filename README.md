@@ -7,7 +7,7 @@
   
 <p align="center">
 
-West Saint Paul Panera whores... I hate you.
+w2i.. oomfs ur better off reaching me on discord i forget to respond on pt
 <p align="center">
 <a href="https://arab.org/click-to-help/palestine/">DAILY CLICK 🇵🇸</a> ⟡ <a href="https://www.last.fm/user/rex69420">LAST.FM</a> ⟡ <a href="https://rex.atabook.org/">GUESTBOOK</a>
 
