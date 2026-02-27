@@ -15,6 +15,6 @@
 <p align="center"><img src="https://file.garden/ZgZOjIo9YF7EdB1r/snaplytics_converted_gif.gif"/></p>
 
 <p align="center">
-anti-censorship & harassment <- exception of dickheads ofc
+anti-censorship & harassment <- still dni if you enjoy lolisho/incest pls thx
   
 currently into warframe, overwatch, deadlock & minecraft
