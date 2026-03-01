@@ -4,6 +4,8 @@
 
 ![](https://komarev.com/ghpvc/?username=VlTTORlNO&label=freaks+++&color=08000A)
 
+ow esports revival everyone get back into it please please plea
+
   
 <p align="center">
 
