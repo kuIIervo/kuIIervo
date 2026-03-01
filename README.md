@@ -4,8 +4,6 @@
 
 ![](https://komarev.com/ghpvc/?username=VlTTORlNO&label=freaks+++&color=08000A)
 
-ow esports revival everyone get back into it please please plea
-
   
 <p align="center">
 
@@ -24,3 +22,5 @@ ow esports revival everyone get back into it please please plea
 ![](https://file.garden/ZgZOjIo9YF7EdB1r/cr2.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/zeta2.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/dsg.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/ssg2.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/liquid.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/fuel.png)
 
 +sf shock, ny excelsior & hz spark 🕊️
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1u1x937jtt5g1ytou7pq9mt7a&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5b54b1&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
