@@ -25,3 +25,4 @@ currently into warframe, overwatch, deadlock & minecraft
 
 ![](https://file.garden/ZgZOjIo9YF7EdB1r/cr2.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/zeta2.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/dsg.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/ssg2.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/liquid.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/fuel.png)
 
++sf shock, ny excelsior & hz spark 🕊️
