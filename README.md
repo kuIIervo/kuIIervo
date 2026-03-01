@@ -20,3 +20,8 @@ ow esports revival everyone get back into it please please plea
 anti-censorship & harassment <- still dni if you enjoy lolisho/incest pls thx
   
 currently into warframe, overwatch, deadlock & minecraft
+</p>
+
+
+![](https://file.garden/ZgZOjIo9YF7EdB1r/cr2.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/zeta2.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/dsg.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/ssg2.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/liquid.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/fuel.png)
+
